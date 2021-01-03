@@ -1,0 +1,2 @@
+# first blog from sratch
+ 
